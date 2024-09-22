@@ -2,7 +2,7 @@
 
 * Basically, my collection of cuphead (mainly script) mods that I made lol
 
-* All of these as of rn use the legacy ver (idk which 1.x ver tho since mine is pirated (I AM NOT BUYING THE GAME AGAIN AFTER BUYING IT ON SWITCH NUH UH!!!) lmao.)
+* All of these as of rn use the legacy ver (idk which ver tho since when I made this mine was pirated (someone remind me to reinstall cuphead and see which ver the mod works on) lmao.)
 
 # Mods
 
